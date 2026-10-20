@@ -1,0 +1,1 @@
+Tadayoshi Kohno (Yoshi) is a Professor and the McDevitt Chair in Computer Science, Ethics, and Society in the Department of Computer Science and the Center for Digital Ethics at Georgetown University. His home page is at [https://sites.google.com/view/yoshi-kohno](https://sites.google.com/view/yoshi-kohno)
